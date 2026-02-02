@@ -1,4 +1,4 @@
-### Programming is a hobby, not wort 👋
+### Programming is a hobby, not work 👋
 ### Fighting to gain more knowledge 🔭
 ### 24 hours a day is not enough 🤔
 <!--
